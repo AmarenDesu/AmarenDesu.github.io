@@ -3,7 +3,7 @@
 
 twitter → @__Smasher
 
-twitch → @tiheisen_amaren
+twitch → @FlowerSmasher
 
 2021/01/31
 おはようございます！(現在午前8時15分)宿題めんど！！！！！！！！！！！！！()
