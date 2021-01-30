@@ -5,6 +5,9 @@ twitter → @__Smasher
 
 twitch → @tiheisen_amaren
 
+2021/01/31
+おはようございます！(現在午前8時15分)宿題めんど！！！！！！！！！！！！！()
+
 2021/01/30
 軽い... https://i.imgur.com/l8NBVtS.png
 
